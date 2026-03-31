@@ -1,1 +1,2 @@
 # CREDIT-RISK-ASSESSMENT-FOR-RETAIL-BANKS
+gritikakothari@gmail.com
